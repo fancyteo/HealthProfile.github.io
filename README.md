@@ -1,1 +1,1 @@
-# HealthProfile.github.io.github.io
+# HealthProfile.github.io
